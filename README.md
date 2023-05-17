@@ -8,4 +8,7 @@
 ![image](https://github.com/Rakhptr5/Kasirin-App-Android/assets/80082749/412feb6b-4dab-47bf-863f-923fdbfd3df9)
 
 ![image](https://github.com/Rakhptr5/Kasirin-App-Android/assets/80082749/40984769-1f74-4d73-be31-2814819df60f)
+![image](https://github.com/Rakhptr5/Kasirin-App-Android/assets/80082749/19f51539-509d-4113-ba02-7174d4fb74b8)
+![image](https://github.com/Rakhptr5/Kasirin-App-Android/assets/80082749/d64cba10-34fa-4de8-a7bf-309653890450)
+![image](https://github.com/Rakhptr5/Kasirin-App-Android/assets/80082749/7bd8b633-2491-4ffe-b232-78bdebd7e656)
 
